@@ -2,5 +2,4 @@
 layout: default
 ---
 
-Halla!
-2
+Välkommen till Ekesås
