@@ -21,7 +21,7 @@ Fango är sedan 1999 godkänd i flera avelsförbund i Frankrike bland annat Sell
 
 Användningsråd från SWB 2014:
 
-####"Ädel, långlinjerad och elegant angloarabhingst med mycket goda avkommemeriter i fälttävlan och goda avkommemeriter i hoppning. Bör kunna användas för målinriktad fälttävlansavel, såväl som i förädlingssyfte inom hoppaveln." 
+#### "Ädel, långlinjerad och elegant angloarabhingst med mycket goda avkommemeriter i fälttävlan och goda avkommemeriter i hoppning. Bör kunna användas för målinriktad fälttävlansavel, såväl som i förädlingssyfte inom hoppaveln." 
 
 Under 2013 hade Fangos avkommor vunnit 137 815 EURO, ca 1,2 milj kr beroende av Eurokursen!
 
