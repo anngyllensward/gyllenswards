@@ -6,7 +6,7 @@ Här kan du läsa om våra hingstar.
 
 # Fango in blue
 
-![Image of Fango](https://github.com/anngyllensward/gyllenswards/blob/master/Fango%20facebook.jpg)
+![Image of Fango](https://raw.githubusercontent.com/anngyllensward/gyllenswards/master/Fango%20facebook.jpg)
 Född 1993, 163 cm, e. Veganum u. Bergere du Chateau ue. Iago C
 
 Ägare Haras Nationaux, Frankrike, utlånad av Sud Equine Services, Tarbes. Leasas av Ann Gyllenswärd, Växjö. 
