@@ -17,11 +17,11 @@ Fango har själv tävlat i hoppning i årgångschampionaten, med ett stadigt sti
 
 Fango är en ädel hingst. Han nedärver angloarabens kvalitéer, han passar särskilt väl till ston som behöver ”blod” och energi. Han nedärver god hoppförmåga, sitt goda temperament och skönhet.  
 
-Fango är sedan 1999 godkänd i flera avelsförbund i Frankrike bland annat Selle Francais och Angloarab. Han har knappt 200 registrerade avkommor, merparten Selle Francais. I Sverige är han tilldelad ELIT av SAAF och är den första angloaraben på många år som är godkänd i SWB. 
-
-Användningsråd från SWB 2014:
+Fango är sedan 1999 godkänd i flera avelsförbund i Frankrike bland annat Selle Francais och Angloarab. Han har knappt 200 registrerade avkommor, merparten Selle Francais. I Sverige är han tilldelad ELIT av SAAF och är den första angloaraben på många år som är godkänd i SWB.
 
 ![Fango](https://raw.githubusercontent.com/anngyllensward/gyllenswards/master/fango.png)
+
+Användningsråd från SWB 2014:
 
 #### "Ädel, långlinjerad och elegant angloarabhingst med mycket goda avkommemeriter i fälttävlan och goda avkommemeriter i hoppning. Bör kunna användas för målinriktad fälttävlansavel, såväl som i förädlingssyfte inom hoppaveln." 
 
