@@ -23,7 +23,11 @@ Användningsråd från SWB 2014:
 
 #### "Ädel, långlinjerad och elegant angloarabhingst med mycket goda avkommemeriter i fälttävlan och goda avkommemeriter i hoppning. Bör kunna användas för målinriktad fälttävlansavel, såväl som i förädlingssyfte inom hoppaveln." 
 
-Under 2013 hade Fangos avkommor vunnit 137 815 EURO, ca 1,2 milj kr beroende av Eurokursen!
+# Avkommor 
+
+![Monty löshoppning](https://raw.githubusercontent.com/anngyllensward/gyllenswards/master/l%C3%B6shoppningmonty.jpg)
+
+Charmont Cashew  kallad Monty" född 2014 e. Fango in Blue u. Kontiki tränar löshoppning hos unghästutbildaren Magda Gajewska jan 2017.
 
 Fango har ett 50-tal indexerade tävlande avkommor i hoppning och fälttävlan, varav 13 med index över 120 som endast 12 % av indexerade avkommor uppnår. 
 
