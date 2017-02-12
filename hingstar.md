@@ -21,6 +21,8 @@ Fango är sedan 1999 godkänd i flera avelsförbund i Frankrike bland annat Sell
 
 Användningsråd från SWB 2014:
 
+![Fango](https://raw.githubusercontent.com/anngyllensward/gyllenswards/master/fango.png)
+
 #### "Ädel, långlinjerad och elegant angloarabhingst med mycket goda avkommemeriter i fälttävlan och goda avkommemeriter i hoppning. Bör kunna användas för målinriktad fälttävlansavel, såväl som i förädlingssyfte inom hoppaveln." 
 
 # Avkommor 
